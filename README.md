@@ -1,3 +1,0 @@
-# screening
-idk im too lazy to fill out my screening everyday so
-im pr sure this is illegal too...
